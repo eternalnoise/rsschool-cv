@@ -1,1 +1,1 @@
-# rsschool-cv
+https://eternalnoise.github.io/rsschool-cv/
